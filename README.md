@@ -11,8 +11,8 @@
   
 
 
-**ew**
-Here are some ideas to get you started:
+**c + h always allowed**
+17
 
-- [wip](https://github.com/cowboytenna/cowboytenna/blob/b0cba37590ff327d46008c11c26abcd10992ec5d/IMG_9143.jpeg)
+- 
 -->
