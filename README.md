@@ -10,9 +10,9 @@
 </html>
   
 
-<!--
-**7n7s/7n7s**
+
+**ew**
 Here are some ideas to get you started:
 
-- wip
+- [wip](https://github.com/cowboytenna/cowboytenna/blob/b0cba37590ff327d46008c11c26abcd10992ec5d/IMG_9143.jpeg)
 -->
