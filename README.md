@@ -13,7 +13,7 @@
 
 **basic dni criteria**
 
-deltarune  &   rblx  main
+deltarune  &   rblx  main . .
 harry potter   bbc sherlock semi
 
 
