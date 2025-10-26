@@ -11,9 +11,13 @@
   
 
 
-**c + h always allowed**
+**basic dni criteria**
 
-17
+deltarune  &   rblx  main
+harry potter   bbc sherlock semi
+
+
+lurking  /  offtab like 1/4 of the time 
 
 
 
