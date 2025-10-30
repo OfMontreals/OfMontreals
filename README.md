@@ -13,6 +13,4 @@
 
 **basic dni criteria**
  
-![image alt](<img width="1672" height="1200" alt="image" src="https://github.com/user-attachments/assets/fe7ac84c-763e-4707-a19a-e8eb8217de65" />
-)
-
+![image alt](https://github.com/OfMontreals/Website/blob/bea7c2b445523c32f90db901bb16043ddf3e790c/IMG_9143.jpeg)
