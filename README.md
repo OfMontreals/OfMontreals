@@ -4,12 +4,12 @@
   </head>
   <body>
   <FONT COLOR= "yellow">
-    tugf
+    
   </font>
   </body>
 </html>
   
-
+![image alt] (https://github.com/OfMontreals/Website/blob/c7277d1f5ca1549a92016e5ac884d00f46f9a44b/Untitled393_20251031113445.png)
 
 **i do free comms for friends!**
 
