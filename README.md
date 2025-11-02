@@ -10,15 +10,3 @@
 </html>
   
 ![image alt](https://github.com/OfMontreals/Website/blob/b611e16682f2fef8be7287940fb7164c213fd39c/Untitled504_20251102162321.png)
-
-
-
-
-
-**i do free comms for friends!**
-
-ex:
- 
-![image alt](https://github.com/OfMontreals/Website/blob/bea7c2b445523c32f90db901bb16043ddf3e790c/IMG_9143.jpeg)
-
-**pleaaa** add me. Ive got liek 3 active friends i can be LONELY.
