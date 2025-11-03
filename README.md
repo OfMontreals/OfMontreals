@@ -13,4 +13,4 @@
 
 
 fanart i drew for Anthony's pony he hasnt seen yet hwhehwhhe
-![image alt](https://github.com/OfMontreals/Website/blob/72dc4aac9144d6be110188c78d42eda103bacbd5/Untitled507_20251103151753.png)
+![image alt](https://github.com/OfMontreals/Website/blob/a23fe159d2151b70c8b14f79af755449e650596a/Untitled507_20251103161934.png)
