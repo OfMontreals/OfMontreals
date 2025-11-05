@@ -9,7 +9,7 @@
   </body>
 </html>
   
-![image alt](https://github.com/OfMontreals/Website/blob/b611e16682f2fef8be7287940fb7164c213fd39c/Untitled504_20251102162321.png)
+![image alt](https://github.com/OfMontreals/Website/blob/4a250b9139fa1a3b82c15cacc3f5b6e974d9a92b/Untitled516_20251105160737.png)
 
 
 fanart i drew for Anthony's pony he hasnt seen yet hwhehwhhe
