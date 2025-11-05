@@ -9,7 +9,7 @@
   </body>
 </html>
   
-![image alt](https://github.com/OfMontreals/Website/blob/4a250b9139fa1a3b82c15cacc3f5b6e974d9a92b/Untitled516_20251105160737.png)
+![image alt](https://github.com/OfMontreals/Website/blob/d16057fdb8fe06d0a38254bec27e7455c83d9df9/Untitled516_20251105160913.png)
 
 
 
