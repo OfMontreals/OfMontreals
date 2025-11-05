@@ -9,8 +9,8 @@
   </body>
 </html>
   
-![image alt](https://github.com/OfMontreals/Website/blob/d16057fdb8fe06d0a38254bec27e7455c83d9df9/Untitled516_20251105160913.png)
+![image alt](https://github.com/OfMontreals/Website/blob/05d55a4ddc1109e9b637c9749e43967a1fd349c4/Untitled518_20251105162140.png)
 
 
 
-![image alt]()
+
